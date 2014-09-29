@@ -1,3 +1,0 @@
-tupper
-======
-fuk pedr
